@@ -6,3 +6,6 @@ I strongly encourage nulled XenForo users to buy it.
 It is a better product than you can imagine.
 
 Please do not post my mods (whether free or not) to communities who are made for pirating forum softwares.
+
+** I don't provide English supports here. **
+** English supports are only available in XenForo official community: https://xenforo.com/community/**
