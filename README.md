@@ -1,4 +1,4 @@
-**Be Advised:** I have no relationship with Xen Fun. Their webmaster made a fake account misrepresenting my identity on his warez site as his revenge towards my denial to his cooperation request. I designate this person as my hostile. Stay away from it.
+**Be Advised:** I have no relationship with Xen Fun. **Their webmaster made a fake account misrepresenting my identity on his warez site as his revenge towards my denial to his cooperation request. I designate this person as my hostile.** Stay away from it.
 
 ---
 
